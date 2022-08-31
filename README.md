@@ -9,7 +9,8 @@ Proactive consultant with strong drive and passion for building business from th
 * Entrepreneurship
 
 ## EXPERIENCE
-See list of comapnies and achievements <https://frederik.today/consulting>
+Companies includig WHO, JTI; Decia Bank, Suez/electrabel, EOS/ALPIQ, Belgia Government, Web Stories Today, .....
+See list of companies and achievements <https://frederik.today/consulting>
 
 ## EDUCATION
 Master in Information Technology - BME/Hoegshool Ghent, Belgium
